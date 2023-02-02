@@ -1,1 +1,1 @@
-### You'd like to f#ck my code, wouldn't you?
+I'm just a coder for fun.
