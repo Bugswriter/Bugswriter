@@ -1,1 +1,1 @@
-I'm just a coder for fun.
+[bugswriter.com/work](https://bugswriter.com/work)
